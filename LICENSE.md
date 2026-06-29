@@ -1,4 +1,4 @@
-
+Experience hypershot like never before with secret hypershot Script, the #1 Script. Includes one-hit kill and anti-ban for unbeatable performance.
 
 
 
